@@ -4,12 +4,12 @@
   <img src="https://raw.githubusercontent.com/ariafatah0711/ariafatah0711/main/asset/1.gif" align="right" width="280"/>
 </a>
 
-- **Name:** Aria Fatah  
+- **Name:** Reyhandra Putra  
 - **Gender:** him
-- **Hobbies:** Networking, CyberSec, WebDev, DevOps
-- **Favorite OS/Distro:** Windows
+- **Hobbies:** Building or Editing thats enough
+- **Favorite OS/Distro:** Windows/Arch
 - **Loves:** Anime, Games, Music
-- **Waifu:** Makise Kurisu, Kumiko Oumae
+- **Waifu:** Elaina, Sanka rea, Asahina mafuyu etc
 <!-- - **Working @:** - -->
 
 <h2 align="center">📇 ~ 𝓚𝓷𝓸𝔀𝓵𝓮𝓭𝓰𝓮 ~ 📇</h2>
