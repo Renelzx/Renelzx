@@ -1,6 +1,6 @@
 <h2 align="center"> ~ 𝓐𝓫𝓸𝓾𝓽 𝓶𝓮 ~ </h2>
 
-<a align="center" href="https://ariaf.my.id">
+<a align="center" href="https://linktr.ee/renelz">
   <img src="https://raw.githubusercontent.com/Renelzx/Renelzx/refs/heads/main/sankarea.gif" align="right" width="280"/>
 </a>
 
