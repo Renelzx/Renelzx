@@ -9,7 +9,7 @@
 - **Hobbies:** Building or Editing thats enough
 - **Favorite OS/Distro:** Windows  /  Linux
 - **Loves:** Anime, Games, Music
-- **Im a part from organisation:** Yukiprjkt
+- **Im a part from organization:** Yukiprjkt
 <!-- - **Working @:** - -->
 
 <h2 align="center"> ~ 𝓚𝓷𝓸𝔀𝓵𝓮𝓭𝓰𝓮 ~ </h2>
