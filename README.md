@@ -11,7 +11,7 @@
 - **Loves:** Anime, Games, Music
 <!-- - **Waifu:** Elaina, Sanka rea, Asahina mafuyu etc-->
 <!-- - **Working @:** - -->
-
+</a>
 
 <h2 align="center"> ~ 𝓚𝓷𝓸𝔀𝓵𝓮𝓭𝓰𝓮 ~ </h2>
 
