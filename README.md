@@ -9,9 +9,8 @@
 - **Hobbies:** Building or Editing thats enough
 - **Favorite OS/Distro:** Windows  /  Linux
 - **Loves:** Anime, Games, Music
-<!-- - **Waifu:** Elaina, Sanka rea, Asahina mafuyu etc-->
+- **Im a part from organisation:** Yukiprjkt
 <!-- - **Working @:** - -->
-</a>
 
 <h2 align="center"> ~ 𝓚𝓷𝓸𝔀𝓵𝓮𝓭𝓰𝓮 ~ </h2>
 
